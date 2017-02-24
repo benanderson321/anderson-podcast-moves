@@ -52,7 +52,6 @@ I listened to The Herd with Colin Cowherd off of Fox Sports Online.  The two epi
 - The beginning of the episode starts with a music intro, the Colin Cowherd introduces himself and says what they will be talking about in this episode.
 - The Herd episodes are about two hours long and the Best of the Herd episodes are about 50 minutes.
 - This podcast is more nationally known, so there are commercial breaks, just as if it were a show on television.
--
 
 ## Style
 
