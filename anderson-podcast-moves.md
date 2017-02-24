@@ -45,7 +45,7 @@ I listened to The Herd with Colin Cowherd off of Fox Sports Online.  The two epi
 
 ## Organization
 
-- This podcast is released twice every weekday.  Each is simply named with the date and "The Herd" and then "Best of the Herd".
+- This podcast is released every weekday.  Each is simply named with the date and "The Herd" and then "Best of the Herd".
 - One of the episodes started out with an advertisement, done by Cowherd himself, for stamps.com.  He told listeners to go to their website, and said they could use a promo code from his show to get discounts.
 - The page layout of the podcast is simple.  It has links to suggested podcasts that I may like and it has buttons to like the podcast on Facebook or tweet it.
 - There is also a short description of the episode.
@@ -58,9 +58,12 @@ I listened to The Herd with Colin Cowherd off of Fox Sports Online.  The two epi
 - There is a short music intro, that takes about 20 seconds.
 - He borrowed a sound byte from Jerry Seinfeld's stand up comedy that added to his point.  He talks about the fear that the Celtics have in their trades, so Seinfeld's stand up bit on fear.
 - Cowherd mentions a drill, and he adds the sound of a drill going.  It goes on in the background the whole time that he talks about the drill.
+- The quality of Cowherd is perfectly clear, but when the call ins or guest speakers are talking, it is a little bit harder to understand them.  They sound a little more muffled and quieter.
 
 ## Narrative Types
 
 - Cowherd does a very cool comparison with the Boston Celtics team and a sales team.  He compares certain players to salesmen, bosses, and other positions, and says all they need is a closer, talking about an all-star that they can add to their roster.
 - Cowherd brings in guest speakers to talk about certain issues.  He gives the phone number to his show at the beginning of the show, and multiple times throughout the show, so people can call in and give their thoughts.
+- The show has set times where they pick a call in, and they let them say something about what they are talking about in the show.  For example, in one of the episodes I watched, a fan called in and asked the question, "why did the Kings rush and decide to take less for Demarcus Cousins than they could have gotten?".  Then, Cowherd answers his question and they get into a little discussion about that and Rick Pitino of Louisville basketball.
 - In these specific episodes, the NBA trade deadline is drawing near.  Because of this, at some points, there are live updates coming into the studio.  If something big like this comes in, he stops to talk about the trade that just happened.
+- The Best of the Herd episodes talk about the same things that are talked about in the regular Herd episode that day, but it is a condensed version to save time in listening.
