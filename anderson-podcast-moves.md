@@ -38,3 +38,16 @@ I listened to the CBS Sports Eye on College Basketball Podcast, and the two epis
 - Norlander gives his answer, then it leads to
 - Norlander once said in discussion, "do you remember what I said in our last podcast?" and Parish jokingly responded with, "no, I don't listen to what you say most of the time."  It added a humorous moment to their discussion, and really made it sound as if it were just two friends talking about sports.
 - They stayed pretty close to the topics that the title said they would be speaking about, along with discussing past scores and upcoming games.
+
+# The Herd with Colin Cowherd
+
+I listened to The Herd with Colin Cowherd off of Fox Sports Online.  The two episodes I listened to were called "The Herd 02/23/2017" and "Best of the Herd 02/23/2017".
+
+## Organization
+
+- This podcast is released twice every weekday.  Each is simply named with the date and "The Herd" and then "Best of the Herd".
+- 
+
+## Style
+
+## Narrative Types
