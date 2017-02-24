@@ -13,7 +13,6 @@ I listened to the CBS Sports Eye on College Basketball Podcast, and the two epis
 - I did not hear any special sound effects were used throughout the podcast.  They seemed to be trying to be as professional sounding as possible and avoided cheesy, cartoonish sounds.
 - It sounded as though Norlander was not physically in the studio with the Parish.  Norlander sounded a little more muffled when he spoke.
 - Music started as he started to wrap up what he was saying, about 25 seconds before the end of the podcast, and the last thirteen seconds just consisted of the music playing.
-
 ## Narrative Types
 #### 2/22: Is Wichita State really on the wrong side of the NCAA tourney bubble?"
 - Parish started off by giving a little back story on where Wichita State is at in their season, giving their record and some of their win statistics.
