@@ -46,6 +46,7 @@ I listened to The Herd with Colin Cowherd off of Fox Sports Online.  The two epi
 ## Organization
 
 - This podcast is released twice every weekday.  Each is simply named with the date and "The Herd" and then "Best of the Herd".
+- One of the episodes started out with an advertisement, done by Cowherd himself, for stamps.com.  He told listeners to go to their website, and said they could use a promo code from his show to get discounts.
 - 
 
 ## Style
